@@ -22,3 +22,5 @@
 * LinkedIn: https://www.linkedin.com/in/bharath-kumar-00a9073b5
 
 ⚡ Fun fact: I wake up at 4 AM to focus on learning and improving every day!
+
+Thank you!
