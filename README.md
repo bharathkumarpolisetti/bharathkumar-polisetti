@@ -23,4 +23,4 @@
 
 ⚡ Fun fact: I wake up at 4 AM to focus on learning and improving every day!
 
-Thank you!
+ #   Thank you!
